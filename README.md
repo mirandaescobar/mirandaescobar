@@ -1,5 +1,5 @@
 ## Hello!
-I am a student at Lane Tech Highschool!
+# I am a student at Lane Tech Highschool!🏫
 <!--
 **mirandaescobar/mirandaescobar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
