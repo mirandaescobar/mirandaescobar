@@ -1,6 +1,7 @@
-## Hello!
-# I am a student at Lane Tech Highschool!🏫
-<!--
+# Hey I'm Miranda
+##  HereeSome info About me
+I am a student at Lane Tech Highschool!🏫
+hello<!--
 **mirandaescobar/mirandaescobar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
