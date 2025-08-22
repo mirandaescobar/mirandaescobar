@@ -1,5 +1,9 @@
 # Hey I'm Miranda!
-##  Here is Some info About me
+##  Here are 3 facts about me
 -I am a student at Lane Tech Highschool🏫
--I am the oldest sister of three sister girls 
-- 
+
+-I am the oldest sister of three girls 
+
+-I am Left-handed
+
+
