@@ -1,4 +1,4 @@
-# Hey I'm Miranda
+# Hey I'm Miranda!
 ##  Here is Some info About me
 I am a student at Lane Tech Highschool🏫
 
