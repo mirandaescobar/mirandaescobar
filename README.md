@@ -1,4 +1,4 @@
-# Hey I'm Miranda!🧿🎧✨🕶🧪💰🙈💗
+# Hey I'm Miranda!✝ 🧿🎧✨🕶🧪💰🙈💗
 ##  Here are 3 facts about me💁‍♀️
 -I am a student at Lane Tech Highschool🏫
 
@@ -9,8 +9,9 @@
 ## In my free-time I like to 
 - listen to music🎧
   
-- spend time with family and friends 
-  
+- spend time with family and friends
+
+  <img src="blob:chrome-untrusted://media-app/48115958-1a77-49b5-a1ad-552f034f01f2" alt="IMG_4908.jpeg"/> <img src="blob:chrome-untrusted://media-app/5ef243b7-8080-45b0-a279-b02b8fd7eff7" alt="IMG_7969.jpeg"/>
 - go to concerts 🎤
 
   Over the summer i went to summersmash, housesat, worked at festivals
