@@ -1,12 +1,12 @@
 # Hey I'm Miranda!✝🎧✨🕶🧪💰🙈💗
-##  Here are 3 facts about me💁‍♀️
+##  Here are 4 facts about me💁‍♀️
 -I am a student at Lane Tech Highschool🏫
 
 -I am the oldest sister of three girls👩‍👩‍👧
 
 -I am Left-handed ✋
 
-This summer i went to summersmash! ☀
+-This summer i went to summersmash! ☀
 <img width="1550" height="1500" alt="image" src="https://github.com/user-attachments/assets/094ec3d9-0f88-45ee-9e46-335790ddc26d" />
 
 ## In my free-time I like to 
