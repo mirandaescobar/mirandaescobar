@@ -1,6 +1,6 @@
 # Hey I'm Miranda!✝🎧✨🕶🧪💰🙈💗
 ##  Here are 4 facts about me💁‍♀️
--I am a student at Lane Tech Highschool🏫
+-I am a student at Lane Tech Highschool and I am attending Depauw University next year!🏫
 
 -I am the oldest sister of three girls👩‍👩‍👧
 
